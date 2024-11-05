@@ -1,2 +1,2 @@
-# We are ImpactNation
+# Join Our Nation
 Your Impact. Our Nation. 

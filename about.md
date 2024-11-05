@@ -1,0 +1,2 @@
+Your Impact. Our Nation.
+At ImpactNation, we believe in building stronger communities by creating sustainable programs focused on growth, health, wellness, and empowerment. Through our initiatives, we aim to support individuals in overcoming challenges, achieving personal growth, and improving their quality of life. Find your impact in your communities. Join our Nation.
